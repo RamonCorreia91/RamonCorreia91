@@ -1,0 +1,4 @@
+- 👋 Oi, Sou @RamonCorreia91
+- 👀 Sou estudante do sexto periodo de Ciência de Dados
+- 🌱 Estou interesse em aprender mais, e contribuir em algum projeto
+- 
